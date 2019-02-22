@@ -24,4 +24,7 @@ The hippo didn't like the taste of Ted very much and spat him back out. He was m
 
 Teddy went to school to get his masters in Library Science to become a librarian. Alice, Carol, and Bob walk into the library.
 
+
 They all decide to resolve their differences, so they all get some scones and juice. They end up deicded they want to spend the rest of their lives together, so they all get married to each other. And buy a farm.
+Bob sees Teddy and he is reminded of the horrible incident. Bob throws a book at Teddy's head which triggers Teddy's evil thoughts again. Teddy goes crazy poops his pants.They all decide to resolve their differences, so they all get some scones and juice. They end up deicded they want to spend the rest of their lives together, so they all get married to each other. And buy a farm.
+

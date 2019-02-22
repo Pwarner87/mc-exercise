@@ -9,3 +9,6 @@ Ted, however, never went for walks - he was affraid of getting hit by bird excri
 the birds were out, and bob is an avid bird watcher. Carol not so much, but she values the happieness of her coworkers and so she shared his entheuasim. Next week they will spend time on her passions, syncronized swimming. Bob ditched Carol and decided to hang out with Alice. They were on the beach and Bob fell in the water!
 
 
+Bob did not know how to swim very well, so Carol jumped in after him. But Carol couldnt swim either. What were they gonna do?
+
+

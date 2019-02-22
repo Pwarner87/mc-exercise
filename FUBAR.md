@@ -23,3 +23,5 @@ Fortunately for the workplace, Alice is a certified lifeguard and happened to be
 The hippo didn't like the taste of Ted very much and spat him back out. He was missing a few pieces but they stiched him back together. Ted was happy and became a nice Teddy after the incident. 
 
 Teddy went to school to get his masters in Library Science to become a librarian. Alice, Carol, and Bob walk into the library.
+
+They all decide to resolve their differences, so they all get some scones and juice. They end up deicded they want to spend the rest of their lives together, so they all get married to each other. And buy a farm.

@@ -1,7 +1,7 @@
 //This feature was created by Ted and Alice!
-#bob and carol went on a lovely walk 
+#bob and carol went on a lovely walk
 ---
-the birds were out, and bob is an avid bird watcher. Carol not so much, but she values the happieness of her coworkers and so she shared his entheuasim. Next week they will spend time on her passions, syncronized swimming. 
+the birds were out, and bob is an avid bird watcher. Carol not so much, but she values the happieness of her coworkers and so she shared his entheuasim. Next week they will spend time on her passions, syncronized swimming.
 
 Ted, however, never went for walks - he was affraid of getting hit by bird excriment and lazy. During breaks he preferred to swim, behind carol. Ted didnt care about his co-workers emotional safety.
 
@@ -15,6 +15,8 @@ Bob did not know how to swim very well, so Carol jumped in after him. But Carol 
 ted was already in the water - he always is - and swam behind carol. When he realized there was a crisis...
 
 
+
 ...... watched Bob and Carol drown. 
 
-Fortunately for the workplace, Alice is a certified lifeguard and happened to be teaching a class on lifeguarding that day. She and her students heard the comotion and dove in, pulling Bob and Carol to safety. They administered first aid, wraped them in blankets, and got them snacks. 
+Fortunately for the workplace, Alice is a certified lifeguard and happened to be teaching a class on lifeguarding to a hippopotomus pod that day. Hippopotomus, it is known, are passionate about aquatic safety. She and her students heard the comotion and dove in, pulling Bob and Carol to safety. Ted, being THE WORST, got eatten by a hippo. The one thing Hippo's are known for after their love of aquatic safety is their voracious appatite. They administered first aid, wraped them in blankets, and got them snacks. 
+

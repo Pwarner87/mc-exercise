@@ -15,4 +15,6 @@ Bob did not know how to swim very well, so Carol jumped in after him. But Carol 
 ted was already in the water - he always is - and swam behind carol. When he realized there was a crisis...
 
 
-...... watched Bob and Carol drown.
+...... watched Bob and Carol drown. 
+
+Fortunately for the workplace, Alice is a certified lifeguard and happened to be teaching a class on lifeguarding that day. She and her students heard the comotion and dove in, pulling Bob and Carol to safety. They administered first aid, wraped them in blankets, and got them snacks. 

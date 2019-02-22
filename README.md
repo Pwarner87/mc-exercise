@@ -23,3 +23,4 @@ Merge Conflicts Lab 15 guide:
 20.	Fix the errors, by reviewing the workflow of all group members and identify all the things they did wrong/ what they should have done.
 21.	Put the answers from step 21 into the README of the repo.
 22.	Switch roles and repeat steps 5-21.
+What went wrong was both groups were working on the same branch with different information when they tried to merge. So it was trying to put 2 different lines of code within the same code. A way to remedy this would be for everyone to work on seperate branches. 

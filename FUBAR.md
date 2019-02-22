@@ -12,3 +12,4 @@ the birds were out, and bob is an avid bird watcher. Carol not so much, but she 
 Bob did not know how to swim very well, so Carol jumped in after him. But Carol couldnt swim either. What were they gonna do?
 
 
+ted was already in the water - he always is - and swam behind carol. When he realized there was a crisis...

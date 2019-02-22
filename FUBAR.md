@@ -20,3 +20,4 @@ ted was already in the water - he always is - and swam behind carol. When he rea
 
 Fortunately for the workplace, Alice is a certified lifeguard and happened to be teaching a class on lifeguarding to a hippopotomus pod that day. Hippopotomus, it is known, are passionate about aquatic safety. She and her students heard the comotion and dove in, pulling Bob and Carol to safety. Ted, being THE WORST, got eatten by a hippo. The one thing Hippo's are known for after their love of aquatic safety is their voracious appatite. They administered first aid, wraped them in blankets, and got them snacks. 
 
+The hippo didn't like the taste of Ted very much and spat him back out. He was missing a few pieces but they stiched him back together. Ted was happy and became a nice Teddy after the incident. 
